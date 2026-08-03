@@ -1,0 +1,4 @@
+[user=Doryan-Admin]
+[foto=https://raw.githubusercontent.com/loslocos817yt-star/BppForo/main/ForoDePerfil/communityIcon_r8mm2omelw6h1.png]
+
+Cr7 donde estas🗣️🔥
